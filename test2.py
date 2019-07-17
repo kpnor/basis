@@ -6,4 +6,5 @@ nå blir det ekstra bra - lagt til
  - ser store muligheter
 ekstra på denne.
 
-Imponerende å se hvilke forskjeller som er 
+Imponerende å se hvilke forskjeller som er
+nye koster
